@@ -1,4 +1,4 @@
 olá! Meu nome é, Fabiana.
-Gosto de jogar volêi e escutar música
-estou cursando o ensino médio
+Gosto de jogar volêi e escutar música e
+estou cursando o ensino médio.
 
